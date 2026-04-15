@@ -1,0 +1,2 @@
+# kurd
+shop mobile
